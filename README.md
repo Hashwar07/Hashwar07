@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on exciting web development and AI projects. If you have an interesting idea or project, feel free to reach out!
 
-📫 How to reach me: You can connect with me via email at hashwar07@example.com or on LinkedIn at linkedin.com/in/hashwar07.
+📫 How to reach me: You can connect with me via email at hashwar944@gmail.com or on LinkedIn at linkedin.com/in/hashwar07.
 
 😄 Pronouns: He/Him
 
